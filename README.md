@@ -1,4 +1,4 @@
-DISPONIBLE AUX 50 STARS
+Disponible aux 50 étoiles!
 
 <div align="center">
 
